@@ -1,0 +1,1 @@
+Materiais desenvolvidos durante o curso do Curso em Vídeo, na pasta Aulas estão minhas anotações enquanto assistia os vídeos.
